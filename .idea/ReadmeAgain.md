@@ -1,3 +1,3 @@
 # Kinginangyan
 
-another day, another shishabog
+another day, another shishabog.
